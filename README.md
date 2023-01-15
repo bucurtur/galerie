@@ -1,1 +1,1 @@
-# galerie-index.html
+https://bucurtur.md
